@@ -1,1 +1,1 @@
-# Proektirovanie-and-expluatacccia-ASOIU
+# Proektirovanie-and-expluataccia-ASOIU
